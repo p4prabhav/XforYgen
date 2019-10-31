@@ -20,11 +20,7 @@ Here's a list of some of our ideas.
 
 The next big thing is: Coachella for Dog Walkers
 
-The next big thing is: Spotify for People with pools
-
-The next big thing is: Stubhub for Hedge funds
-
-The next big thing is: Pandora for furniture
+The next big thing is: Coachella for Orange juice
 
 The next big thing is: Coachella for Jungle juice
 
